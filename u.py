@@ -1,0 +1,1 @@
+hello friday today is my kid last working day
